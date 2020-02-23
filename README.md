@@ -7,3 +7,5 @@ Enjoy!
 martinedwardconnor@gmail.com
 
 www.RapAnalysis.com
+
+**I claim no ownership over this work; I found it online at a link that is now dead.**
